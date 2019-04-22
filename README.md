@@ -1,2 +1,2 @@
-# Relearing Math
+# Relearning Math
 
